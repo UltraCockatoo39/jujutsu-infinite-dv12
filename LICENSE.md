@@ -1,4 +1,4 @@
-
+jujutsu infinite smart Script is the best jujutsu infinite Script, featuring esp and auto-upgrade. Safe and powerful for all your needs.
 
 
 
